@@ -14,7 +14,7 @@ Automate the election audit process normally done in Excel for an election held 
 - Diane 'DD' DeGette ROCKED the vote snagging 272,892 (73.8%) of the total 369,711 votes!  Completely, smoking Charles Casper (he's gonna ghost for sure now) Stockham who claimed 85,213 of those 369,711 votes putting him at 23.0% of the vote.
 - But Raymon Anthony Doane can NOT be feeling RAD about his showing in this race with an embarrassing 3.1% of the vote, taking home only 11,606 of those 369,711 votes.
 
-### Again, Congratulations to Ms. DeGette for her strong showing at the polls. Who would have thought her first Congressional race would end with 272,892 of 369,711 total votes! Sweeping the win, 73.8%!
+*Again, congratulations to Ms. DeGette for her **strong** showing at the polls. Who would have thought her first Congressional race would end with 272,892 of 369,711 total votes! Sweeping the win, 73.8%!*
 
 
 
